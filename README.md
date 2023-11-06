@@ -1,4 +1,2 @@
-Soy la ostia tio, jodeeer
-Hola de nuevooooooooooo
-
-loading ...
+Segundo intento  y mejorando 
+Poco a poco tmareeeeeeeeeeeeeeeeeeeee
